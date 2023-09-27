@@ -21,4 +21,4 @@ if you flirt with me (i am not currently looking for one), overly political,
 #### ꒰ ' **BYI** . ꒱ 
 **autism**, ADD, and selective mutism. i have trouble communicating and understanding my wrongs, please explain it to me directly. if i sound aggressive at times i apologize, i can get ahead of myself.
 ***
-[SENTRY] (https://sntry.cc/kir8)
+[SENTRY](https://sntry.cc/kir8)
