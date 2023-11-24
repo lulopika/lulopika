@@ -1,7 +1,7 @@
-# 𖤐 𓈒࣪  ᭡ ˖ [PONYTOWN INFO](https://sntry.cc/yoshikage)
+# 𖤐 𓈒࣪  ᭡ ˖ [PONYTOWN INFO](pony.town)
 ╰┈➤ **@user id** ; 635df20646041df052ff5c3a, feel free to whisper if you have **issues** with me
 ***
-![](https://cdn.discordapp.com/attachments/929205922516062270/1156424779537076234/image.png?ex=6514ec00&is=65139a80&hm=6e4f299cecd6e55d2124b704c2a83ef5a22b270e57f5835a4f52db0c1cebd737&)
+![](https://wilardo.crd.co/assets/images/gallery03/5e89b995_original.gif?v=4a8c310d)
 ***
 ## ★ ! INFO
 #### ꒰ ' **BASIC** . ꒱
