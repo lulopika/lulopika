@@ -1,3 +1,3 @@
-click [here](https://bundles.cc/jolymes) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⵌ ' ♡ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ jolyne x ermes biggest fan
+click [here](https://bundles.cc/jolymes) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⵌ ' ♡ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ jolyne + jotaros biggest fan
 
- ⇆ pfp by kookirani ⺌               ![](https://wilardo.crd.co/assets/images/gallery03/004695da_original.png?v=b62e9456)
+ ⇆ pfp by @suguruz ⺌               ![](https://wilardo.crd.co/assets/images/gallery03/89edb232_original.png?v=b62e9456)
